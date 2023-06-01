@@ -11,9 +11,9 @@ LEARN
 
 **Заголовки**
 
-
-
-
+gtgitvckuvluvlib;j.
+kgcyrjycl
+yticcovo
 
 ## Исходный код
 
